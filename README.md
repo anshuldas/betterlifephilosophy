@@ -1,1 +1,1 @@
-# betterlifephilosphies
+# betterlifephilosphy
